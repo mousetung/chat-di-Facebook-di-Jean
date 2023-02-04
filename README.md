@@ -1,2 +1,4 @@
-# Benvenuti nel covo di Perversione che solo un uomo riesce a ottenere
-Benvenuti nella Chat del Maestro
+#pubblicaione del gioco Figa da Minkia Island.
+giocabile online 
+provao a farlo girare bene sul cellulare con la risoluzione adatta, full screen
+
